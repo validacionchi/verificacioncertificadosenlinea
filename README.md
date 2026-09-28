@@ -1,1 +1,1 @@
-# verificacioncertificadosenlinea
+# certificadosmineducvalidacionmovil
